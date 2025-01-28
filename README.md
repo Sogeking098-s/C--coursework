@@ -1,2 +1,2 @@
-0x7375646f@ncateam.xyz
+0x7375646f@gmail.com
 thesogeking098@gmail.com
